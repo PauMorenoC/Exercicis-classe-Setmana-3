@@ -1,1 +1,1 @@
-# Exercici 1
+# Exercicis
